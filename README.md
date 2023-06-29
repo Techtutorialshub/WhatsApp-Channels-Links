@@ -78,4 +78,4 @@ ENTRENTEMIENTO OFFICIAL WHATSAPP CHANNEL: JOIN HERE <a href="https://www.techtut
 
   <p>Get ready to embark on a journey of knowledge, entertainment, and connection with these amazing WhatsApp channels. Join now and elevate your WhatsApp experience!</p>
 
-  <a href="https://webstories.techtutorialshub.com">link</a>visit Techtutorialshub.com for anupdsted version</a>
+  <a href="https://webstories.techtutorialshub.com">visit Techtutorialshub.com for anupdsted version</a>
