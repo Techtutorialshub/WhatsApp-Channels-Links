@@ -77,3 +77,5 @@ ENTRENTEMIENTO OFFICIAL WHATSAPP CHANNEL: JOIN HERE <a href="https://www.techtut
   <p>Remember, you can join multiple channels based on your interests. Feel free to explore and experiment with different channels until you find the ones that resonate with you.</p>
 
   <p>Get ready to embark on a journey of knowledge, entertainment, and connection with these amazing WhatsApp channels. Join now and elevate your WhatsApp experience!</p>
+
+  <a href="https://webstories.techtutorialshub.com">link</a>visit Techtutorialshub.com for anupdsted version</a>
